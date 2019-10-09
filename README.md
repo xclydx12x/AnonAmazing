@@ -1,2 +1,2 @@
 # AnonAmazing
-Anonymous amazing
+💠
